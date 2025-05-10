@@ -1,5 +1,15 @@
 JONATHAN FRANCISCO DOS  SANTOS SILVA
 
+
+
+
+
+
+![ia](https://github.com/user-attachments/assets/55b57a27-e123-41c9-8afb-ae2151775292)
+
+
+
+
 Busco uma oportunidade em TI para desenvolver minhas habilidades em programação, MySQL, 
 infraestrutura, desenvolvimento de Software / Suporte Técnico / Infraestrutura, buscando aprimorar minhas 
 habilidades técnicas e contribuir ativamente para projetos inovadores contribuindo para a equipe e 
